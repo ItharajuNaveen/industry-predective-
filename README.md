@@ -1,1 +1,1 @@
-# industry-predective-
+Smart learning
